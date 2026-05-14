@@ -1,4 +1,4 @@
-# 
+# vip Sejda PDF for PC | Sejda PDF for Windows Plugin | split-PDFs + headers-and-footers offers the most advanced Sejda PDF for PC | Sejda PDF for Windows plugin, with split-PDFs
 
 
 
